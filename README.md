@@ -1,4 +1,3 @@
 # projektmunka
-Noel meleg
-\n
+Noel meleg  
 Monori egy szigma
